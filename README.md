@@ -1,0 +1,2 @@
+# Navoiyliklar
+birinchi
